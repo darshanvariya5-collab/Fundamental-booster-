@@ -127,7 +127,7 @@ Thank you for using Fundamental Booster!
 ---
 ##  Video
 
-Link:
+Link: https://drive.google.com/drive/folders/1q7CYsULU1wp6c7FQ0VKVzooUXc2JCStj
 
 ---
 ## 🎯 Learning Objectives
